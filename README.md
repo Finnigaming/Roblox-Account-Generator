@@ -12,3 +12,6 @@ How to Use :
 What can it do? :
 - It can Generate 100 ofs Accounts for Roblox Spoofing
 - Cookies Login
+
+Download Link :
+https://mega.nz/folder/KdkwBCaI#qTJsz9hClbsBo2x3rcgKMQ
